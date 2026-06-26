@@ -1,2 +1,2 @@
 ## Video Demonstration Link
- Screen Recording 2026-06-26 at 14.19.32.mov 
+ [Click here to view] (https://gismauniversity-my.sharepoint.com/:v:/g/personal/phuc_nguyen_gisma-student_com/IQBuRGdTrYJJRqmLtYoH2uzVAf3PVLjvGLjahta9XwoRMXE?nav=eyJyZWZlcnJhbEluZm8iOnsicmVmZXJyYWxBcHAiOiJPbmVEcml2ZUZvckJ1c2luZXNzIiwicmVmZXJyYWxBcHBQbGF0Zm9ybSI6IldlYiIsInJlZmVycmFsTW9kZSI6InZpZXciLCJyZWZlcnJhbFZpZXciOiJNeUZpbGVzTGlua0NvcHkifX0&e=WI7GgN)
